@@ -1,0 +1,1 @@
+![One Piece](https://upload.wikimedia.org/wikipedia/en/9/90/One_Piece%2C_Volume_61_Cover_%28Japanese%29.jpg)
